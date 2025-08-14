@@ -13,7 +13,7 @@
 -  🕹 - Sempre estou pronta para assumir o controle das coisas!  
   
 
-- 🙈 -  Sou muito tímida mas sempre estou pronta para ajudar quem precisar de mim!  
+- 🙈 -  Sou reservada mas sempre estou pronta para ajudar quem precisar de mim!  
   
 
 <br/>  
